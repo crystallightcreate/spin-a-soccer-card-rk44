@@ -1,4 +1,4 @@
-# 
+# Experience spin a soccer card like never before with rare spin a soccer card Script, the #1 Script. Includes instant win and auto-heal for unbeatable
 
 
 
